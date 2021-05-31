@@ -1,0 +1,2 @@
+# praktika
+vrode kak nado
